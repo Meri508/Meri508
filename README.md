@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Meri508
-- 👀 I’m interested in programming
+- 👀 I’m interested in........
 - 🌱 I’m currently learning software enigeering
   
 - 😄 Pronouns: she/her
